@@ -11,7 +11,7 @@
 
 - 📄 Know about my experiences [https://acesse.one/arjuncharakresume8](https://acesse.one/arjuncharakresume8)
 
-- ⚡ Fun fact **I am an Alien**
+- ⚡ Fun fact **I am not a Developer**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
